@@ -2,7 +2,8 @@
 - 👀 I’m live in hebei
 - 🌱 my school is syhgdx
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 my qq is 1102796158
+- welcome
 
 <!---
 dgfhfk/dgfhfk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
